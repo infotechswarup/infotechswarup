@@ -1,3 +1,4 @@
+![logo](https://github.com/infotechswarup/infotechswarup/blob/main/CEO%20%26%20FOUNDER.png)
 ### Hi there 👋
 
 <!--
